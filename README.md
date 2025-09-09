@@ -11,3 +11,5 @@ My mother's name is Pramiladevi.She's a home maker.
 I have an elder sister,Her name is Pavithra and she is working in Vvdn technologies,Pollachi as a software engineer.
 #Inspiration
 My sister is my inspiration.she manages her family as well as her work.She wants to be independent in her life.She takes care her of me like my mother.
+#Guitar
+I crave for guitar tunes most of the time.Iam still learning to play a guitar.More like coding and programmer I also wanted to be a guitarist
